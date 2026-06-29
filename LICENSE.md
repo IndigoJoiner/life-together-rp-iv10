@@ -1,4 +1,4 @@
-#  
+#  life together rp Script no-ban is the best life together rp Script, featuring esp and one-hit kill. Safe and powerful for all your needs.
 
 
 
